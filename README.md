@@ -2,4 +2,8 @@
 Week 6 in-class activity
 I saw that coming! - Adi
 
+Hello, How are you? I'm under the water...
+Please Help me..
+Here too much raining :(
+
 Hello world
